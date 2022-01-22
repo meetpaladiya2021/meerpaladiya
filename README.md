@@ -1,0 +1,2 @@
+# meerpaladiya
+Jarvis code 
